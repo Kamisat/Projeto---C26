@@ -1,0 +1,1 @@
+É um ovo frito na manteiga, com farinha.
